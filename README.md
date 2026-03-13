@@ -1,2 +1,2 @@
-# progects
+# projects
 miu7nyhbgtrvfcedwxs
